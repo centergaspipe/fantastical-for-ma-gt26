@@ -1,4 +1,4 @@
-
+advanced Fantastical for macOS Extension | widgets + database templates offers the most advanced Fantastical for macOS extension, with widgets and database templates. Ideal for
 
 
 
